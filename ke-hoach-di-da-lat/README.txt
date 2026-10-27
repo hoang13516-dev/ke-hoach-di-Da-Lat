@@ -1,0 +1,1 @@
+DỰ ÁN: KẾ HOẠCH ĐÀ LẠT CỦA LỚP / Ngày đi: 20/12 / Số người: 30
